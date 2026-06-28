@@ -1,2 +1,0 @@
-# Portfolio
-Stay Vishnu Portfolio
